@@ -63,3 +63,4 @@
 Читать на сайте: https://www.gl5.ru/bumbox_vahteram.html
 
 Слава Україні!
+Смерть ворогам
