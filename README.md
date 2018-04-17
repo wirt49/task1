@@ -1,3 +1,2 @@
 # task1
-our work
-ur mum gay
+this is our common repository
